@@ -2,7 +2,7 @@
 title: welcome 
 ---
 
-I'm Sarah (she/they), community educator, equity advocate, and mom. 
+I'm Sarah (she/they), community educator and equity advocate. 
 
 ![me](/hihello.JPG)
 
