@@ -2,7 +2,7 @@
 title: welcome 
 ---
 
-[!me(files/--.jpg)]
+[!me(/IMG_5520 copy.JPG]
 
 I'm Sarah (she/they), community educator, equity advocate, and mom. 
 
