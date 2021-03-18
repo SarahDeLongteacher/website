@@ -8,10 +8,13 @@ I am not affiliated with any of the following organizations, and I am not a prom
 # hunger relief & food equity
 
 
-# trauma relief 
+# trauma resources 
 
 
-# books on yoga
+# lgbtqia+ support 
 
 
-# books on cooking & food history 
+# books about yoga
+
+
+# books about cooking & food history 
