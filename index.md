@@ -1,5 +1,6 @@
 ---
 title: welcome 
+menu title: welcome
 ---
 
 I'm Sarah (she/they), community educator and equity advocate. 
