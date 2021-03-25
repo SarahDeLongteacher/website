@@ -36,7 +36,7 @@ I am committed to reparations. In 2021, I have chosen to donate a portion of my 
 
 # schedule 
 
-Facilitating, teaching, and workshop requests--please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals and send to sarah(at)sarahdelong(dot)com. 
+Facilitating, teaching, and workshop requests -- please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
 # positionality 
 
