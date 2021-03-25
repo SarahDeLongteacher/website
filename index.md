@@ -40,4 +40,4 @@ Facilitating, teaching, and workshop requests -- please include possible dates, 
 
 # positionality 
 
-woman, cis, bisexual/panromantic, non-disabled, hearing, seeing, white, English native-speaker, experiencing chronic mental illnesses, property-owning, citizen, settled on Ute land, unreligious, raised Christian, post-secondary educated, originally taught by white western cis women (yoga) and white western cis men (cooking). 
+woman, cis, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, unreligious, raised Christian, post-secondary educated, initially taught by white western cis women (yoga) and white western cis men (cooking). 
