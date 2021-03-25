@@ -20,7 +20,7 @@ I facilitate mindful movement & breath on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) lan
 
 I teach cooking on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; additional training at the Salt Lake Culinary Center, Culinary Institute of American, Institute of Culinary Education, and International Culinary Center. I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
-![yogaforallinstructor](/yfa_badge_cyan_200.jpg) ![RYT200](/RYTyogaalliance.jpg) 
+![yogaforallinstructor](/yfa_badge_cyan_200.jpg)      ![RYT200](/RYTyogaalliance.jpg) 
 
 # resources & reparations 
 
