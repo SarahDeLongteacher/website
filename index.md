@@ -19,6 +19,6 @@ Sarah teaches cooking on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community ce
 
 Facilitating, teaching, and workshop requests--please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals and send to sarah(at)sarahdelong(dot)com. 
 
-
+<a href=”http://Yogaforalltraining.com”><img src=”http://yogaforalltraining.com/wp-content/uploads/2015/11/yfa_badge_cyan_200.jpg” alt=”yfa_badge_cyan200px” width=”200″ height=”153″ class=”aligncenter size-full wp-image-780″ /></a>
 
 Positionality: white, cis, woman, bisexual/panromantic, English native-speaker, hearing, seeing, non-disabled, experiences chronic mental illnesses, property-owning, citizen, settled on Ute land, unreligious, raised Christian, post-secondary educated; originally taught by white western cis women (yoga) and white western cis men (cooking). 
