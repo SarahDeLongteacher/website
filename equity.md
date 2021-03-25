@@ -9,6 +9,6 @@ To provide yoga and cooking classes more equitably, I offer sliding scale and no
 - Balancer
 - Sponsor 
 
-In 2021, I am donating 20% of wellness facilitating proceeds to Satrang, supporting LGBTQ+ South Asian Americans, and 20% of cooking teaching proceeds to Utah Diné Bikéyah, supporting indigenous communities--Navajo, Hopi, Zuni, Ute Mountain Ute, & Uintah Ouray Ute--protecting their ancestral lands.
+Sliding scale pricing invites attendees to consider their resources and contribute as they are able. Roots pricing acknowledges that everyone is welcome regardless of circumstance; this is the foundation of yoga. Balancer pricing acknowledges that we live in a capitalist society that injustly puts value on productivity and on marginalized cultures; this is the equivalent of standard class fees. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
 
-I charge additional fees in corporate settings. An additional 10%, that will be deducted after the event and before final billing IF participant/client conduct was professional and appropriate. And to honor impact over intent, an additional 20% when client organizations lack active inclusion policies and/or are white-only spaces. 
+I am committed to reparations. In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator, Utah Diné Bikéyah, and Black Lives Matter Utah. 
