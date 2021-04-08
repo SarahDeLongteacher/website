@@ -4,7 +4,7 @@ menu title: welcome
 ---
 
 
-I'm Sarah (she/they), community educator and equity advocate. *covid-19 vaccinated*
+I'm Sarah (she/they), community educator and equity advocate. 
 
 *For the duration of the COVID-19 pandemic, I’m committed to providing accessible mindful movement classes to frontline providers at risk of secondary trauma.* 
 
@@ -40,4 +40,4 @@ Facilitating, teaching, and workshop requests -- please include possible dates, 
 
 # positionality 
 
-woman, cis, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initially taught by white western cis women (yoga) and white western cis men (cooking). 
+*vaccinated for covid-19* woman, cis, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initially taught by white western cis women (yoga) and white western cis men (cooking). 
