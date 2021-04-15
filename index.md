@@ -16,7 +16,7 @@ photo: a woman stands on a beach gazing off to the left of the camera. she(they)
 
 # learning 
 
-I facilitate mindful movement & breath on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Steffanie Anderson (200YTT), Morgan Vanderpool (TCTSY), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Jane and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki, Michelle Cassandra Johnson, and Anusha Wijeyakumar. Practitioner 7 years, facilitator 1 year.
+I facilitate mindful movement & breath on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Steffanie Anderson (200YTT), Morgan Vanderpool (TCTSY), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki, Michelle Cassandra Johnson, and Anusha Wijeyakumar. Practitioner 7 years, facilitator 1 year.
 
 I teach cooking on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; additional training at the Salt Lake Culinary Center, Culinary Institute of American, Institute of Culinary Education, and International Culinary Center. I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
