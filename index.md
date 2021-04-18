@@ -6,9 +6,10 @@ menu title: welcome
 
 I'm Sarah (she/they), community educator and equity advocate. 
 
-*For the duration of the COVID-19 pandemic, I’m committed to providing accessible mindful movement classes to frontline providers at risk of secondary trauma.* 
-
 sustainable • mindful • resilient 
+
+*For the duration of the COVID-19 pandemic, I’m committed to providing accessible mindful classes to frontline providers at risk of secondary trauma.* 
+
 
 ![me](/hihello.JPG)
 
