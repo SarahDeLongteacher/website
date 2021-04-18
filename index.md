@@ -8,7 +8,7 @@ I'm Sarah (she/they), community educator and equity advocate.
 
 *For the duration of the COVID-19 pandemic, I’m committed to providing accessible mindful movement classes to frontline providers at risk of secondary trauma.* 
 
-simple, sustainable cooking • mindful movement • nervous system resiliency 
+sustainable • mindful • resilient 
 
 ![me](/hihello.JPG)
 
@@ -16,9 +16,9 @@ photo: a woman stands on a beach gazing off to the left of the camera. she(they)
 
 # learning 
 
-I facilitate mindful movement & breath on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Steffanie Anderson (200YTT), Morgan Vanderpool (TCTSY), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki, Michelle Cassandra Johnson, and Anusha Wijeyakumar. Practitioner 7 years, facilitator 1 year.
+I teach cooking and sourcing classes and workshops on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied culinary herbalism with K. P. Khalsa via Learning Herbs; at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of American, Institute of Culinary Education, and International Culinary Center. I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
-I teach cooking on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; additional training at the Salt Lake Culinary Center, Culinary Institute of American, Institute of Culinary Education, and International Culinary Center. I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
+I facilitate mindful movement & breath pratices and education sessions on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki and Michelle Cassandra Johnson. Practitioner 7 years, facilitator 1 year.
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
