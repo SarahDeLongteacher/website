@@ -14,7 +14,7 @@ photo: a woman stands on a beach gazing off to the left of the camera. she(they)
 
 # advocate
 
-In 2019, I incorporated Queer Community Allies, a small 501(c)(3) nonprofit, volunteer-based organization focused on supporting local LGBTQIA+ young people. I'm currently a board member, webmaster, and drop off donations to schools and groups. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, drop off donations to schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
 
 # learning 
 
