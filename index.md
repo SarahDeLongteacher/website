@@ -12,11 +12,15 @@ I'm Sarah (she/they), community educator and equity advocate.
 
 photo: a woman stands on a beach gazing off to the left of the camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair, bangs blowing across their(her) forehead, light skin that has a pink hue, and is wearing a grey hoodie, blue & white checkered shirt and light blue scarf. in the background, ocean water pools around a tan sandy beach and black rocks.  
 
+# advocate
+
+In 2019, I incorporated Queer Community Allies, a small 501(c)(3) nonprofit, volunteer-based organization focused on supporting local LGBTQIA+ young people. I'm currently a board member, webmaster, and drop off donations to schools and groups. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+
 # learning 
 
-I teach cooking and sourcing workshops on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
+One of my favorite things is teaching cooking and sourcing workshops on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
-I also facilitate mindful movement & breath and education sessions on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki and Michelle Cassandra Johnson. Practitioner 7 years, facilitator 1 year.
+A yoga student and practitioner for 7 years, I also facilitate mindful movement & breath and education sessions in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki, Kendra Coupland, and Anusha Wijeyakumar. 
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
