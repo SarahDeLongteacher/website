@@ -4,7 +4,7 @@ menu title: welcome
 ---
 
 
-I'm Sarah (she/they), community educator and equity advocate. 
+I'm Sarah, community educator and equity advocate. 
 
 
 
