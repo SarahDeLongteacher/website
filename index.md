@@ -14,9 +14,9 @@ photo: a woman stands on a beach gazing off to the left of the camera. she(they)
 
 # learning 
 
-I teach cooking and sourcing classes and workshops on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
+I teach cooking and sourcing workshops on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
-I facilitate mindful movement & breath pratices and education sessions on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki and Michelle Cassandra Johnson. Practitioner 7 years, facilitator 1 year.
+I also facilitate mindful movement & breath and education sessions on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki and Michelle Cassandra Johnson. Practitioner 7 years, facilitator 1 year.
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
@@ -39,3 +39,5 @@ Facilitating, teaching, and workshop requests -- please include possible dates, 
 # positionality 
 
 *fully vaccinated against covid-19* woman, cis, larger-bodied, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initially taught by white western cis women (yoga) and white western cis men (cooking). 
+
+Intertidal Movement, LLC
