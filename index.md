@@ -18,15 +18,15 @@ In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-base
 
 # learning 
 
-One of my favorite things is teaching cooking and sourcing workshops. I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). I'm inspired by Edna Lewis, Susan Feniger, and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
+One of my favorite things is teaching cooking and sourcing workshops. I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center; and with K. P. Khalsa (herbalist). My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. Two of my favorite chefs are Edna Lewis and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
 
-A yoga student and practitioner for 7 years, I also facilitate mindful movement & breath and education sessions in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities) and continue to be inspired by Susanna Barkataki, Kendra Coupland, and Anusha Wijeyakumar. 
+A yoga student and practitioner for 8 years, I also facilitate mindful movement & breath sessions in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (trauma-affected communities). My movement sessions honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religious trauma.  
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
 # resources & reparations 
 
-To provide yoga and cooking classes more equitably, I offer sliding scale and no-cost options. 
+To provide yoga and cooking classes more equitably, I offer sliding scale, no-cost, and donation-based options. 
 
 - Roots 
 - Balancer
