@@ -42,6 +42,6 @@ Facilitating, teaching, and workshop requests -- please include possible dates, 
 
 # positionality 
 
-*fully vaccinated against covid-19* woman, cis, larger-bodied, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initially taught by white western cis women (yoga) and white western cis men (cooking). 
+*fully vaccinated against covid-19* woman, mid-sized body, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initiating teachers white western cis women (yoga) and white western cis men (cooking). 
 
 Intertidal Movement, LLC
