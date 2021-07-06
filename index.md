@@ -4,17 +4,13 @@ menu title: welcome
 ---
 
 
-I'm Sarah, community educator and equity advocate. 
+I'm Sarah, embodied (somatic) facilitator and equity advocate. 
 
 
 
 ![me](/hihello.JPG)
 
-photo: a woman stands on a beach gazing off to the left of the camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair, bangs blowing across their(her) forehead, light skin that has a pink hue, and is wearing a grey hoodie, blue & white checkered shirt and light blue scarf. in the background, ocean water pools around a tan sandy beach and black rocks.  
-
-# advocate
-
-In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, drop off donations to schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair and light pink-hued skin, and is wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks.  
 
 # learning 
 
@@ -40,8 +36,12 @@ In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive
 
 Facilitating, teaching, and workshop requests -- please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
+# advocate
+
+In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, drop off donations to schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+
 # positionality 
 
-*fully vaccinated against covid-19* woman, mid-sized body, bleeding person, non-disabled, hearing, seeing, bisexual/panromantic, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, married, parent, unreligious, raised Christian, post-secondary educated, initiating teachers white western cis women (yoga) and white western cis men (cooking). 
+*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, non-disabled, hearing, seeing, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated, inititally learned yoga from white western cis women and cooking from white western cis men. 
 
 Intertidal Movement, LLC
