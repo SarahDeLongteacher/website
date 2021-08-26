@@ -24,7 +24,7 @@ I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne B
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
-I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will hopefully deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for psychotherapy, physical therapy, or counseling. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and personal journeys, and seek help and other resources when they encounter difficulties beyond my scope of training.  
+I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will hopefully deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
 
 # resources & reparations 
 
