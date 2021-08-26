@@ -20,11 +20,15 @@ I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with 
 
 MINDFUL MOVEMENT & BREATH ~ I also facilitate mindful movement & breath sessions in studios, schools, workplaces, and therapeutic centers. I facilitate slow, interoception-focused, gentle and restorative spaces for attendees to embrace their inner guide. My movement sessions don’t have soundtracks, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions.
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (Trauma Informed Movement). I hold 200RYT status through Yoga Alliance. As a trauma-sensitive teacher, I present movement and breath options in the context of being as aware as possible of survivorship in the body as a result of systemic, interpersonal, situational, and complex traumas. Practitioner 8 years, facilitator 2 years. 
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (Trauma Informed Movement). I hold 200RYT status through Yoga Alliance. As a trauma-sensitive teacher, I present movement and breath options in the context of being as aware as possible of survivorship in the body as a result of systemic, interpersonal, situational, and complex traumas. Practitioner 8 years, facilitator 2 years.    
 
-![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
+NOTES ~ I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will hopefully deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
 
-I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will hopefully deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
+![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)  
+
+# schedule 
+
+Please check back soon! 
 
 # resources & reparations 
 
@@ -54,9 +58,6 @@ Roots pricing acknowledges that everyone is welcome regardless of circumstance; 
 
 Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
-# schedule 
-
-Please check back soon! 
 
 # advocate
 
