@@ -4,7 +4,7 @@ menu title: welcome
 ---
 
 
-I'm Sarah, embodied (somatic) facilitator and equity advocate. 
+I'm Sarah, embodied facilitator and equity advocate. 
 
 
 
@@ -14,31 +14,55 @@ photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, tee
 
 # learning 
 
-One of my favorite things is teaching cooking and sourcing workshops. I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center; and with K. P. Khalsa (herbalist). My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. Two of my favorite chefs are Edna Lewis and Alex Guarnaschelli. Cooking steadily 25 years, teacher 9 years. 
+HOLISTIC COOKING ~ One of my favorite things is teaching cooking and sourcing workshops. I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
 
-A yoga student and practitioner for 8 years, I also facilitate mindful movement & breath sessions in studios, schools, workplaces, and therapeutic centers. I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (Trauma Informed Movement). I hold 200RYT status through Yoga Alliance. My movement sessions honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions.  
+I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center; and with K. P. Khalsa (herbalist). Cooking steadily 25 years, teacher 9 years. 
+
+MINDFUL MOVEMENT & BREATH ~ I also facilitate mindful movement & breath sessions in studios, schools, workplaces, and therapeutic centers. I facilitate slow, interoception-focused, gentle and restorative spaces for attendees to embrace their inner guide. My movement sessions don’t have soundtracks, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions.
+
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), and Amanda Hanna and Kirsten Wilkinson (Trauma Informed Movement). I hold 200RYT status through Yoga Alliance. As a trauma-sensitive teacher, I present movement and breath options in the context of being as aware as possible of survivorship in the body as a result of systemic, interpersonal, situational, and complex traumas. Yoga practitioner 8 years, teacher 2 years. 
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)     
 
+It is understood that 
+	- Sarah will lead movement-based classes with a lens of body acceptance, options, and choice-making 
+	- Classes will hopefully deepen participant mind-body connection but are not to be considered medical advice or a replacement for psychotherapy, physical therapy, or counseling. 
+
+I encourage attendees to     
+  - Commit to curiosity surrounding their own personal journey
+  - Respect others’ boundaries and personal journeys
+  - Seek help and other resources when they encounter difficulties 
+
 # resources & reparations 
 
-To provide yoga and cooking classes more equitably, I offer sliding scale, no-cost, and donation-based options. 
+To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options. In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. 
 
-- Roots 
-- Balancer
-- Sponsor 
+Roots (everyone is welcome regardless of circumstance)
+	$10 hourly, teaching
+	$5 per student, group class 
+	$10 hourly, consulting 
 
-Roots pricing acknowledges that everyone is welcome regardless of circumstance; this is the foundation of yoga. Balancer pricing acknowledges that we live in a capitalist society that injustly puts value on productivity and on marginalized cultures; this is the equivalent of standard class fees. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
+Balancer (standard fee)
+	$25 hourly, teaching 
+	$15 per student, group class 
+	$35 hourly, consulting 
 
-In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. 
+Sponsor (community members share resources so all can participate) 
+	$45 hourly, teaching
+	$25 per student, group class
+	$60 hourly, consulting
+
+Roots pricing acknowledges that everyone is welcome; this is the foundation of yoga. Balancer pricing acknowledges that we live in a capitalist society that injustly puts value on productivity and on marginalized cultures. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
+
+Please contact me for large-scale event/workshop/retreat fees. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
 # schedule 
 
-Facilitating, teaching, and workshop requests -- please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
+Please check back soon! 
 
 # advocate
 
-In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, drop off donations to schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, visit schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
 
 # positionality 
 
