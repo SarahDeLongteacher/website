@@ -28,26 +28,31 @@ I lead classes with a lens of body acceptance, options, and choice-making. I alw
 
 # resources & reparations 
 
-To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options. In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. 
+In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. 
 
-Roots (everyone is welcome regardless of circumstance)
-	$10 hourly, teaching
-	$5 per student, group class 
-	$10 hourly, consulting 
+To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options. My sliding scale prices are listed here: 
 
-Balancer (standard fee)
-	$25 hourly, teaching 
-	$15 per student, group class 
-	$35 hourly, consulting 
+Roots 
 
-Sponsor (community members share resources so all can participate) 
-	$45 hourly, teaching
-	$25 per student, group class
-	$60 hourly, consulting
+- $10 hourly, teaching	
+- $5 per student, group class 
+- $10 hourly, consulting 
 
-Roots pricing acknowledges that everyone is welcome; this is the foundation of yoga. Balancer pricing acknowledges that we live in a capitalist society that injustly puts value on productivity and on marginalized cultures. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
+Balancer  
 
-Please contact me for large-scale event/workshop/retreat fees. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
+- $25 hourly, teaching 
+- $15 per student, group class 
+- $35 hourly, consulting 
+
+Sponsor 
+
+- $45 hourly, teaching
+- $25 per student, group class
+- $60 hourly, consulting
+
+Roots pricing acknowledges that everyone is welcome regardless of circumstance; this is the foundation of yoga. Balancer pricing represents standard fees and acknowledges we live in a capitalist society that injustly puts value on productivity and on marginalized cultures. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
+
+Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
 # schedule 
 
