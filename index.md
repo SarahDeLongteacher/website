@@ -65,6 +65,6 @@ In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-base
 
 # positionality 
 
-*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, non-disabled, hearing, seeing, chronic mental illness, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated, inititally learned yoga from white western cis women and cooking from white western cis men. 
+*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, non-disabled, hearing, seeing, neurodivergent/neuroatypical, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated. 
 
 Intertidal Movement, LLC
