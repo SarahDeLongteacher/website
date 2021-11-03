@@ -34,7 +34,7 @@ Please check back soon!
 
 In 2021, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. 
 
-To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options. My sliding scale prices are listed here: 
+To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options. For transparency, my sliding scale prices are listed here. Roots pricing acknowledges that everyone is welcome regardless of circumstance. Balancer pricing represents standard fees and acknowledges we live in a capitalist society that injustly puts value on productivity and on marginalized cultures. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
 
 Roots 
 
@@ -54,14 +54,12 @@ Sponsor
 - $25 per student, group class
 - $60 hourly, consulting
 
-Roots pricing acknowledges that everyone is welcome regardless of circumstance; this is the foundation of yoga. Balancer pricing represents standard fees and acknowledges we live in a capitalist society that injustly puts value on productivity and on marginalized cultures. Sponsor pricing invites community members to give generously and share their resources so all can participate equitably in spaces with dignity and empathy. 
-
 Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
 
 # advocate
 
-In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, the webmaster, visit schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
+In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, webmaster, visit schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
 
 # positionality 
 
