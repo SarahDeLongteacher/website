@@ -4,10 +4,6 @@ menu title: welcome
 ---
 
 
-I'm Sarah, embodied facilitator and equity advocate. 
-
-
-
 ![me](/hihello.JPG)
 
 photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair and light pink-hued skin, and is wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks.  
@@ -63,6 +59,6 @@ In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-base
 
 # positionality 
 
-*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, non-disabled, hearing, seeing, neurodivergent/neuroatypical, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated. 
+*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, temporarily abled, hearing, seeing, neurodivergent/neuroatypical, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated. 
 
 Intertidal Movement, LLC
