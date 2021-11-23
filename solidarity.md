@@ -10,7 +10,7 @@ Solidarity is horizontal. It respects the other person. I have a lot to learn fr
 
 All of these organizations are near to my heart or important to my current work. 
 
-[![QueerCommunityAllies](/qcasmall.jpg)](https://queercommunityallies.org/donate)   ![LegacyMotion]   ![RestoringAncestralWinds](/    
+[![QueerCommunityAllies](/qcasmall.jpg)](https://queercommunityallies.org/donate)   [![LegacyMotion](/SocialSharing.png)](https://www.legacymotion.org)   [![RestoringAncestralWinds](/ApDSo5mW_400x400.jpg)](https://restoringawcoalition.org)    
 
 ![SouthAsianAmericansLeadingTogether](/     ![SpiceKitchenIncubator](/    ![UtahBlackHistoryMuseum
 
