@@ -10,9 +10,9 @@ Solidarity is horizontal. It respects the other person. I have a lot to learn fr
 
 All of these organizations are near to my heart or important to my current work. 
 
-[![QueerCommunityAllies](/qcasmall.jpg)](https://queercommunityallies.org/donate)     [![LegacyMotion](/legmot.png)](https://www.legacymotion.org)     [![RestoringAncestralWinds](/restwinds.jpg)](https://restoringawcoalition.org)     [![SouthAsianAmericansLeadingTogether](/saalt.jpg)](https://saalt.org)     [![SpiceKitchenIncubator](/ )]()     [![UtahBlackHistoryMuseum](/ )]( )
-
-![UtahDineBikeyah](       ![UtahHomelessCoalition     ![IllumiNative](    
+[![QueerCommunityAllies](/qcasmall.jpg)](https://queercommunityallies.org/donate)     [![LegacyMotion](/legmot.png)](https://www.legacymotion.org)     [![RestoringAncestralWinds](/restwinds.jpg)](https://restoringawcoalition.org)     
+[![SouthAsianAmericansLeadingTogether](/saalt.jpg)](https://saalt.org)     [![SpiceKitchenIncubator](/Spice-Kitchen-Logo.png)](https://spicekitchenincubator.org)     [![UtahBlackHistoryMuseum](/bhm.png)](https://www.blacklivesmatterutah.com/utah-black-history-museum.html)
+[![UtahDineBikeyah](/UDB.jpg)](https://utahdinebikeyah.org)     [![UtahHomelessCoalition     ![IllumiNative](    
 
 
 "Charity is something you give to those 'less fortunate than yourself'. It suggests a belief in a hierarchal system, 
