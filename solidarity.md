@@ -1,10 +1,6 @@
-layout: page
-title: "solidarity"
-permalink: /solidarity/
-
 ---
-title: share in solidarity  
-menu title: share in solidarity
+title: solidarity  
+menu title: solidarity
 ---
 
 
