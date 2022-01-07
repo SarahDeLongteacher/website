@@ -61,4 +61,8 @@ In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-base
 
 *fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, temporarily abled, hearing, seeing, neurodivergent/neuroatypical, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated. 
 
+
+
+"The body is the shore on the ocean of being." --Sufi (anonymous)
+
 Intertidal Movement, LLC
