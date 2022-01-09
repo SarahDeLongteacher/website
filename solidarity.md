@@ -8,8 +8,6 @@ an 'us' and a 'them'. It creates a power dynamic that further reinforces systems
 Solidarity, by contrast, takes a systems change approach. Its foundational philosophy is that all relationships and power dynamics are 
 multi-directional and acknowledges that everyone has wisdom and resources to solve problems." - Elise Zelechowski
 
-# holidays and all year
-
 [![QueerCommunityAllies](/qcasmall.jpg)](https://queercommunityallies.org/donate)     [![LegacyMotion](/legmot.png)](https://www.legacymotion.org)     [![RestoringAncestralWinds](/restwinds.jpg)](https://restoringawcoalition.org)     [![SouthAsianAmericansLeadingTogether](/saalt.jpg)](https://saalt.org)     [![SpiceKitchenIncubator](/Spice-Kitchen-Logo.png)](https://spicekitchenincubator.org)     [![UtahBlackHistoryMuseum](/bhm.png)](https://www.blacklivesmatterutah.com/utah-black-history-museum.html)     [![UtahDineBikeyah](/UDB.jpg)](https://utahdinebikeyah.org)     [![UtahHomelessCoalition](/Shelter_logo.png)](https://homelessutah.org/coalition-end-homelessness/)     [![IllumiNative](/illuminative.png)](https://illuminatives.org)     
 
 
