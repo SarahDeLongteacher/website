@@ -3,6 +3,10 @@ title: welcome
 menu title: welcome
 ---
 
+Welcome to Intertidal Movement!
+
+"The body is the shore on the ocean of being." --Sufi (anonymous)
+
 
 ![me](/hihello.JPG)
 
