@@ -20,7 +20,7 @@ I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with 
 
 MINDFUL MOVEMENT & BREATH ~ I facilitate slow, interoception-focused, gentle and restorative spaces in studios, schools, workplaces, and therapeutic centers. My sessions emphasize choice and individuality, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions. 
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), Amanda Jane (SomaPsych) and Kirsten Wilkinson (Legacy Motion) (Trauma Informed Movement), and Kelley Nicole Palmer (Race & Equity, Accessible Yoga). I hold 200RYT status through Yoga Alliance. I am the first Yoga for All graduate from Utah. Practitioner 8 years, facilitator 2 years.   
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), Amanda Jane (SomaPsych) and Kirsten Wilkinson (Legacy Motion) (Trauma Informed Movement), and Kelley Nicole Palmer (Race & Equity, Accessible Yoga). I hold 200RYT status through Yoga Alliance. I am the first Yoga for All graduate from Utah. Practitioner 11 years, facilitator 3 years.   
 
 NOTES ~ I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
 
