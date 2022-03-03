@@ -8,10 +8,6 @@ Welcome to Intertidal Movement!
 "The body is the shore on the ocean of being." --Sufi (anonymous)
 
 
-![me](/hihello.JPG)
-
-photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair and light pink-hued skin, and is wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks.  
-
 # mindfulness guide  
 
 HOLISTIC COOKING ~ I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
@@ -26,9 +22,6 @@ NOTES ~ I lead classes with a lens of body acceptance, options, and choice-makin
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)  
 
-# schedule 
-
-Please check back soon! 
 
 # resources & reparations 
 
@@ -56,16 +49,5 @@ Solidarity
 
 Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
-
-# advocate
-
-In 2019, I incorporated Queer Community Allies, a small 501(c)(3) volunteer-based organization focused on supporting local LGBTQIA+ young people. I am a current board member, webmaster, visit schools and groups, and have acted as treasurer. Within this work, I've cooperated with other local community organizations, attended trainings and conferences, appeared on education panels, and taught others about starting a nonprofit. 
-
-# positionality 
-
-*fully vaccinated against covid-19* demiwoman, mid-sized body, bleeding person, temporarily abled, hearing, seeing, neurodivergent/neuroatypical, descended from white Europeans, English native-speaker, settled on Ute land, sheltered, property-owning, citizen, partnered with a white straight man, parent, unreligious, raised Christian, post-secondary educated. 
-
-
-"The body is the shore on the ocean of being." --Sufi (anonymous)
 
 Intertidal Movement, LLC
