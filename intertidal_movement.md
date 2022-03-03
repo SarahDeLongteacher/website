@@ -50,4 +50,8 @@ Solidarity
 Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
 
-Intertidal Movement, LLC
+![me](/hihello.JPG)
+
+photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair and light pink-hued skin, and is wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks. 
+
+Intertidal Movement, LLC 2021
