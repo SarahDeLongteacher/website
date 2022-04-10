@@ -23,27 +23,9 @@ NOTES ~ I lead classes with a lens of body acceptance, options, and choice-makin
 
 # resources & reparations 
 
-In 2022, I have chosen to donate a portion of my trauma-aware and body inclusive yoga workshops to Restoring Ancestral Winds and SAALT, South Asian Americans Leading Together. I have chosen to donate a portion of my cooking and local food workshops to the Spice Kitchen Incubator and Utah Diné Bikéyah. (Read more about organizations important to me [here](https://sarahdelong.com/solidarity).) To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. 
+In 2022, I am donating a portion of yoga/movement workshops to Restoring Ancestral Winds and SAALT (South Asian Americans Leading Together) and a portion of cooking workshops to Spice Kitchen Incubator and Utah Diné Bikéyah. (Read more about organizations important to me [here](https://sarahdelong.com/solidarity).) To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. 
 
-For transparency, my sliding scale prices are listed here. 
-
-Community 
-
-- $10 hourly, teaching	
-- $5 per student, group class 
-- $10 hourly, consulting 
-
-Balance  
-
-- $25 hourly, teaching 
-- $15 per student, group class 
-- $35 hourly, consulting 
-
-Solidarity 
-
-- $45 hourly, teaching
-- $25 per student, group class
-- $60 hourly, consulting
+My sliding scale costs: $5 (per class), $10 hourly -- $25 (per class), $35 hourly --  $40 (per class), $65 hourly
 
 Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
 
