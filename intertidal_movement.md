@@ -14,7 +14,7 @@ I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with 
 
 MINDFUL MOVEMENT & BREATH ~ I facilitate slow, interoception-focused, gentle and restorative movement & breath practices in community spaces. My sessions emphasize choice and individuality, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions. 
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy and Amber Karnes (Yoga for All), Amanda Hanna and Kirsten Wilkinson (SomaPsych & Legacy Motion Trauma Informed Movement), and Kelley Nicole Palmer (Race & Equity; Accessible Yoga). I am the first Yoga for All graduate in Utah. I am currently in training to become a certified Trauma-Informed Movement Facilitator (June 2022). I hold 200RYT status through Yoga Alliance. Practitioner 11 years, facilitator 3 years.   
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance). I'm also the first Yoga for All graduate from Utah. Practicing 11 years, facilitator 3 years.   
 
 NOTES ~ I lead classes with a lens of body acceptance, options, and choice-making. I always hope classes will deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
 
@@ -23,11 +23,9 @@ NOTES ~ I lead classes with a lens of body acceptance, options, and choice-makin
 
 # resources & reparations 
 
-In 2022, I am donating a portion of movement session proceeds to Restoring Ancestral Winds and SAALT and cooking session proceeds to Spice Kitchen Incubator and Utah Diné Bikéyah. To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. 
+To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. I donate a portion of session proceeds to nonprofit organizations. 
 
-My sliding scale costs: $5 (per class), $10 hourly -- $25 (per class), $35 hourly --  $40 (per class), $65 hourly
-
-Please contact me for large-scale event/workshop/retreat fee quotes. Please include possible dates, location(s), available resources (budget, tools, space, etc), number of participants, some of your event goals to sarah(at)sarahdelong(dot)com. 
+All queries can be directed to sarah(at)sarahdelong(dot)com. 
 
 
 ![me](/hihello.JPG)
