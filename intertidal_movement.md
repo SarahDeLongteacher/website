@@ -8,28 +8,35 @@ menu title: intertidal movement
 
 # mindfulness guide  
 
-HOLISTIC COOKING ~ I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
+HOLISTIC COOKING ~ I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. 
+
+My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
 
 I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). Cooking 26 years, teacher 10 years. 
 
-MINDFUL MOVEMENT & BREATH ~ I facilitate slow, interoception-focused, gentle and restorative movement & breath practices in community spaces. My sessions emphasize choice and individuality, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions. 
+~ ~ ~ 
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance). I'm also the first Yoga for All graduate from Utah. Practicing 11 years, facilitator 3 years.   
+MINDFUL MOVEMENT & BREATH ~ I facilitate slow, interoception-focused, gentle and restorative movement & breath practices in community spaces. 
+
+My sessions emphasize choice and individuality, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions. 
+
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, facilitator 3 years.   
+
+~ ~ ~ 
 
 NOTES ~ I hold spaces with a lens of body acceptance, options, and choice-making. I always hope classes will deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)  
 
 
-# resources & reparations 
-
-To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. I donate a portion of session proceeds to nonprofit organizations. 
+# resources & cost 
 
 All queries can be directed to sarah(at)sarahdelong(dot)com. 
 
+To provide sessions and classes more equitably, I offer sliding scale, no-cost, and donation-based options for all sessions. I share a portion of session proceeds with community organizations. 
 
 ![me](/hihello.JPG)
 
-photo: Sarah stands on a beach gazing aside of camera. she(they) is smiling, teeth showing, eyes half closed, smile wrinkles visible at the edges of their(her) eyes. she(they) has brown hair and light pink-hued skin, and is wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks. 
+photo: Sarah stands on a beach gazing aside of camera, smiling, eyes half closed, smile wrinkles visible at the edges of their eyes. brown hair and light pink-hued skin, wearing a grey hoodie and light blue scarf. in the background, ocean water pools around a sandy beach and rocks.
 
-Intertidal Movement, LLC 2021
+Intertidal Movement, LLC 2022
