@@ -12,7 +12,7 @@ HOLISTIC COOKING ~ I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in communi
 
 My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
 
-I studied at the Park City Culinary Institute (Culinary Arts and Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with K. P. Khalsa (herbalist). Cooking 26 years, teacher 10 years. 
+I studied at the Park City Culinary Institute (Culinary Arts & Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with herbalist K. P. Khalsa. Cooking 26 years, teacher 10 years. 
 
 ~ ~ ~ 
 
