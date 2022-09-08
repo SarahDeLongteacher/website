@@ -6,25 +6,22 @@ menu title: intertidal movement
 "The body is the shore on the ocean of being." --Sufi (anonymous)
 
 
-# mindfulness guide  
+# cooking & movement coach  
 
-HOLISTIC COOKING ~ I teach on ceded Núu-agha-tʉvʉ-pʉ̱ (Ute) land in community centers, schools, and private spaces. 
-
-My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
+COOKING ~ My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
 
 I studied at the Park City Culinary Institute (Culinary Arts & Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with herbalist K. P. Khalsa. Cooking 26 years, teacher 10 years. 
 
-~ ~ ~ 
 
-MINDFUL MOVEMENT & BREATH ~ I facilitate slow, interoception-focused, gentle and restorative movement & breath practices in community spaces. 
-
-My sessions emphasize choice and individuality, honor indigenous roots, are fat positive and trans affirming, and acknowledge local high-commitment religions. 
+MINDFUL EMBODIED MOVEMENT & BREATH ~ My sessions emphasize choice and individuality. I collaborate with folks in our spaces to explore easeful practices. 
 
 I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, facilitator 3 years.   
 
-~ ~ ~ 
+# notes
 
-NOTES ~ I hold spaces with a lens of body acceptance, options, and choice-making. I always hope classes will deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
+Whether in community centers, schools, or private spaces, I share with a lens of body acceptance, options, and choice-making. I always hope classes will deepen participant mind-body connection, but sessions are not to be considered medical advice or a replacement for nutritional or medical counsel, psychotherapy, or physical therapy. I encourage attendees to commit to curiosity surrounding their own personal journey, respect others’ boundaries and journeys, and seek help and other resources when they encounter questions or difficulties beyond my scope of training.  
+
+I honor that I walk and work on the traditional and ancestral homelands of the Shoshone, Goshute, and Ute tribes. 
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)  
 
