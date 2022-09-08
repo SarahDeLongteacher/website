@@ -19,7 +19,7 @@ I studied at the Park City Culinary Institute (Culinary Arts & Mixology) with Gr
 
 MINDFUL EMBODIED MOVEMENT & BREATH ~ My sessions emphasize choice and individuality. I collaborate with folks in our spaces to explore easeful practices. 
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, facilitator 3 years.   
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator (SomaPsych & Legacy Motion), 200RYT (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, teaching 3 years.   
 
 
 ![RYT200](/RYT200.png)     ![yogaforallinstructor](/yfa_badge_cyan_200.jpg)  
