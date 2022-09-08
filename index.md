@@ -4,7 +4,7 @@ menu title: welcome
 ---
 
 
-## "The body is the shore on the ocean of being." --Sufi (anonymous)
+"The body is the shore on the ocean of being." --Sufi (anonymous)
 
 ![me](/hihello.JPG)
 
