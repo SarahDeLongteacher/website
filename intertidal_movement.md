@@ -3,7 +3,7 @@ title: intertidal movement
 menu title: intertidal movement
 ---
 
-
+"The body is the shore on the ocean of being." --Sufi (anonymous)
 
 # cooking & movement coach  
 
@@ -32,7 +32,6 @@ Whether in community centers, schools, or private spaces, I share with a lens of
 
 I honor that I walk and work on the traditional and ancestral homelands of the Shoshone, Goshute, and Ute tribes. 
 
-"The body is the shore on the ocean of being." --Sufi (anonymous)
 
 ![me](/hihello.JPG)
 
