@@ -5,16 +5,16 @@ menu title: intertidal movement
 
 "The body is the shore on the ocean of being." --Sufi (anonymous)
 
-# cooking & movement coach  
+# cooking & movement facilitator  
 
 COOKING ~ My sessions center on whole, local ingredients (herbs, vinegars, colorful produce, multiple protein sources, fermented foods, grain variety) framed by land, history, and food worker equity. 
 
-I studied at the Park City Culinary Institute (Culinary Arts & Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with herbalist K. P. Khalsa. Cooking 26 years, teacher 10 years. 
+I studied at the Park City Culinary Institute (Culinary Arts & Mixology) with Greg Neville, Rebecca Millican, Adam Kreisel, Houman Gohary, Viet Pham, Ethan Lappe, Frody Volgger, and Alexi Johnson; and various cuisines and techniques at the Salt Lake Culinary Center, Culinary Institute of America, Institute of Culinary Education, International Culinary Center, and with herbalist K. P. Khalsa. Cooking 26 years, teaching 11 years. 
 
 
 MINDFUL EMBODIED MOVEMENT & BREATH ~ My sessions emphasize choice and individuality. I collaborate with folks in our spaces to explore easeful practices. 
 
-I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator [(SomaPsych & Legacy Motion)](https://www.somapsych.org/trauma-informed-movement-facilitator-training), 200-hr Registered Yoga Teacher (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, teaching 3 years.   
+I studied with Morgan Vanderpool (Trauma Center Trauma Sensitive Yoga), Dianne Bondy & Amber Karnes (Yoga for All), Amanda Hanna & Kirsten Wilkinson (SomaPsych & Legacy Motion), and Kelley Nicole Palmer (Accessible Yoga). Certified Trauma-Informed Movement Facilitator [(SomaPsych & Legacy Motion)](https://www.somapsych.org/trauma-informed-movement-facilitator-training), 200-hr Registered Yoga Teacher (Yoga Alliance), and first Yoga for All graduate from Utah. Practicing 11 years, facilitating 3 years.   
 
 # resources & cost 
 
