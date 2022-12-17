@@ -4,8 +4,12 @@ menu title: welcome
 ---
 
 
-Hello. I write about how understanding our human nervous systems (neuroscience) influences our stories about ourselves (humanities) looking back and looking forward. 
+Hello. 
 
-I'm also learning Python, was once a librarian, and am a trauma-informed movement facilitator [(Intertidal Movement)](https://sarahdelong.com/intertidalmovement). 
+Exploring the impact understanding our nervous systems can have on the stories we tell about ourselves & our universe. (Cognitive neuroscience + humanities)  
+
+Learning Python. 
+
+Trauma-informed movement facilitation [(Intertidal Movement)](https://sarahdelong.com/intertidalmovement). 
 
 Bachelors of Arts, English (Humanities), 2008. 
