@@ -6,7 +6,7 @@ menu title: welcome
 
 Hello. 
 
-Exploring the impact understanding our nervous systems can have on the stories we tell about ourselves & our universe. (Cognitive neuroscience + humanities)  
+Exploring the impact understanding our nervous systems can have on the stories we tell about ourselves & our place in the stars (cognitive neuroscience + humanities).   
 
 Learning Python. 
 
