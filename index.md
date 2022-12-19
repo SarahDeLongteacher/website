@@ -10,6 +10,6 @@ Exploring the impact understanding our nervous systems can have on the stories w
 
 Learning Python. Fascinated by cognitive neuroscience & pedagogy. 
 
-Bachelors of Arts, English (Humanities) --> youth librarian --> youth community advocate --> trauma-informed student, somatic & embodied practices 
+trauma-informed somatic & embodied practices <-- youth community advocate <-- youth librarian <-- Bachelors of Arts, English (Humanities) 
 
 
