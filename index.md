@@ -6,10 +6,10 @@ menu title: welcome
 
 Hello. 
 
-Exploring the impact understanding our nervous systems can have on the stories we tell about ourselves & our place in the stars (cognitive neuroscience + humanities).   
+Exploring the impact understanding our nervous systems can have on the stories we tell. 
 
-Learning Python. 
+Learning Python. Fascinated by cognitive neuroscience & pedagogy. 
 
-Trauma-informed movement facilitation [(Intertidal Movement)](https://sarahdelong.com/intertidalmovement). 
+Bachelors of Arts, English (Humanities) --> youth librarian --> youth community advocate --> trauma-informed student, somatic & embodied practices 
 
-Bachelors of Arts, English (Humanities), 2008. 
+
