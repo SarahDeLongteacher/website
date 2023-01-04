@@ -12,4 +12,5 @@ Learning Python. Fascinated by cognitive neuroscience & pedagogy.
 
 trauma-informed somatic & embodied practices <-- youth community advocate <-- youth librarian <-- Bachelors of Arts, English (Humanities) 
 
+[Blog.](sarahdelong.com/blog)
 
