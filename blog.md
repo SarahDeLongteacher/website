@@ -3,8 +3,6 @@ title: blog
 menu title: blog
 ---
 
-"The body is the shore on the ocean of being." --Sufi (anonymous)
-
 
  # Neurohumanities: Trauma-Informed Networks 
 January 2023
@@ -40,3 +38,6 @@ Pages 590-593,
 ISSN 0896-6273,
 https://doi.org/10.1016/j.neuron.2020.10.019.
 (https://www.sciencedirect.com/science/article/pii/S0896627320308151)
+
+
+"The body is the shore on the ocean of being." --Sufi (anonymous)
