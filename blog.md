@@ -4,7 +4,7 @@ menu title: blog
 ---
 
 
- # Neurohumanities: Trauma-Informed Networks 
+Neurohumanities: Trauma-Informed Networks 
  
 January 2023
 
