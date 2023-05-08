@@ -4,7 +4,67 @@ menu title: blog
 ---
 
 
-Neurohumanities: Trauma-Informed Networks 
+# Ecosystems and Stories
+
+May 2023
+
+What do many people in the States think about wolves? 
+
+What stories brought them to that point? 
+
+What stories weave into our thoughts, our decisions, our laws, our customs? 
+
+For example, below is one possible ultra-short story attempting to capture the general mentality up to and beyond the reintroduction of wolves to Yellowstone Park in 1995.
+
+*The predator lowered its head. A pair of eyes shone through the grass.*
+
+*A few yards away, the cow grazed unknowingly, a little separated from the rest of the herd.*
+
+*It was over in a flash. The wolf darted from the undergrowth and dug its teeth into the cow’s neck. Moos and snorts from the rest of the heard echoed across the field as the hoofed creatures ran.*
+	
+*When the rancher came to check his herd that evening, he found the marks of the lone wolf. Devastated, he went home and wrote a letter to his congressman, begging for changes that would support ranchers and protect them from wildlife.* 
+
+Ecological-political implications aside, strategists have been using words like “narrative” and “counter narrative” for years. Though how those play out—debates, legal code, press releases—are far from what most people associate with stories—novels, films, theatre, folktales—they have the same components: protagonists, antagonists, actions, reactions, and emotions. 
+
+Emotions are now being understood as a fundamental aspect of storytelling. Neuroscientists continue to discover that our emotions are not “frilly” or “extra” or “feminine”—they are essential to interpreting, remembering, and acting on our experiences. Both emotions of the speaker (or actor, or author) and of the listener/reader/viewer.
+
+When I constructed the ultra-short story above, I relied on fact, historical points, tropes, and colloquialisms. Behind all of that was considering emotions I often observe in these contexts: fear, anxiety, apprehension, surprise, anger, and vigilance. 
+
+Could observing emotions then constructing narratives based on those emotions tell our truest stories? 
+
+What do scientists who study wolves actually hope people will understand about wolves? 
+
+What do I, as someone interested in wolf study, hope others will see? What of my own experience do I hope to share?  
+
+What emotions do I hope people will feel? 
+
+If I hoped people would feel pensiveness, amazement, acceptance, and/or interest, I might write: 
+
+*Denali’s nose moved as it sniffed the air. It looked up to the sky as two crows flew overhead cawing.*
+
+*The researchers inside the observatory noted Denali’s behavior, observing eye movement, ear placement, tail placement, and paws.*
+
+*A hundred miles away, two elected representatives, Indigenous and Black Trans, sat in a capitol office, reading emails and tweets from constituents, scientists, and BLM managers.*
+
+*Back outside the observatory, Axel came bounding up to Denali, practicing classic submissive behavior. Denali accepted it, then trotted off through the trees.*
+
+Could our stories change perceptions? 
+
+Could our narratives rewire individual pathways and cultural pathways? 
+
+
+Reference/Inspiration: 
+ 
+Martinez-Conde S, Alexander RG, Blum D, Britton N, Lipska BK, Quirk GJ, Swiss JI, Willems RM, Macknik SL. 
+The Storytelling Brain: How Neuroscience Stories Help Bridge the Gap between Research and Society. 
+J Neurosci. 2019 Oct 16; 39 (42): 8285-8290. 
+Doi: 10.1523/JNEUROSCI.1180-19. 
+PMID: 31619498; PMCID: PMC6794920.
+
+
+
+
+# Neurohumanities: Trauma-Informed Networks 
  
 January 2023
 
