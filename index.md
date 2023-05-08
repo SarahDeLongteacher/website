@@ -14,3 +14,5 @@ trauma-informed somatic & embodied practices <-- youth community advocate <-- yo
 
 [Blog.](/blog.md)
 
+[Intertidal Movement.](/intertidal_movement.md)
+
