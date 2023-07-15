@@ -4,6 +4,25 @@ menu title: blog
 ---
 
 
+# Programming and communication
+
+July 2023 
+
+My son said recently, “It’s so weird that our brain wants to learn about itself.” Yes, yes it is. 
+
+As I pluck away on my keyboard, writing minimal programs in Python, I think about communication. While the code I write is intended to instruct my device to carry out certain tasks in a particular order, I'm also writing for my future self with the # comments I add. 
+
+I glance over my husband's shoulder at the code he writes, and think about the other programmers who will verify and check his code and that he's ultimately communicating with other programmers. 
+
+Computers have no comprehension of the data they carry (at the moment, anyway; science fiction is still very much fiction). They assign no value statements or emotions to the location of my period in a sentence or of my file labeled Yellow_Wallpaper_count. But I do. Other programmers do. We are communicating with each other through networks of tools. 
+
+Communication drives much of our human behavior. We write laws to communicate with each other about what we will and won't tolerate and consequences individually and collectively. We document science experiments to track observations and share with peers. We philosophize to mentally explore our big questions. We build and share tools to shape our group structures and goals.
+
+And ultimately it all comes down to communicating. Translating one brain aka association-organ's conceptualizations into language that can then be translated into another association-organ's conceptualizations.  
+
+
+
+
 # Ecosystems and Stories
 
 May 2023
