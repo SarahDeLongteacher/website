@@ -6,13 +6,12 @@ menu title: welcome
 
 Hello. 
 
-Exploring the impact understanding our nervous systems can have on the stories we tell. 
+Communicator and teacher. Learning Python. 
 
-Learning Python. Fascinated by biology, cognition, sensory literacy, movement, & liberation. 
+Fascinations: storytelling, seasons, creativity, movement, cognition & learning, neurophysiology, ecosystems. 
 
-trauma-informed somatic & embodied practices <-- youth community advocate <-- youth librarian <-- Bachelors of Arts, English (Humanities) 
+"All brains benefit from an enriched environment." Dr. Marian Diamon 
 
-[Blog.](/blog.md)
+"The body has a need for sound and a need for motion." Fred Johnson
 
-[Intertidal Movement.](/intertidal_movement.md)
-
+Queries sarah(at)sarahdelong(dot)com 
